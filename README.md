@@ -1,0 +1,7 @@
+![ Alaska - Presentation 1](https://github.com/user-attachments/assets/73ab31ea-c76f-49c5-92fb-abd05e5a8536)
+![ Alaska - Presentation  2](https://github.com/user-attachments/assets/a10de5ef-d895-41ff-8460-9560e6929151)
+![ Alaska - Presentation 3](https://github.com/user-attachments/assets/b8a2bdf6-76f2-4d7f-bb8a-6eb3384f02a4)
+![ Alaska - Presentation 4](https://github.com/user-attachments/assets/e93a9f23-d202-443a-8c88-e4e741541f38)
+![ Alaska - Presentation  5](https://github.com/user-attachments/assets/411f0fce-84e6-430e-adc3-4e161e3f7746)
+![ Alaska - Presentation 6](https://github.com/user-attachments/assets/ebd62101-022a-43ff-aaf3-f6abc62f9264)
+![ Alaska - Presentation  7](https://github.com/user-attachments/assets/388a5678-6ca4-4d1d-9333-1f2a79add763)
